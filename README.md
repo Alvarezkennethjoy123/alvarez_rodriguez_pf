@@ -1,3 +1,6 @@
+[Narrative repor-WPS Office.docx](https://github.com/user-attachments/files/15765563/Narrative.repor-WPS.Office.docx)
+
+[Reference-WPS Office.docx](https://github.com/user-attachments/files/15765567/Reference-WPS.Office.docx)
 
 https://github.com/Alvarezkennethjoy123/alvarez_rodriguez_pf/assets/167290981/2aed7cb2-8b31-4825-b2bf-bd74a22ed8ed
 
